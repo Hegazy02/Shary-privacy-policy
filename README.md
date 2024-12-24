@@ -1,0 +1,1 @@
+# Shary-privacy-policy
